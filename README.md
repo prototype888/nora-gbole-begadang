@@ -1,1 +1,1 @@
-# buat-kak vell
+# buat-nora
